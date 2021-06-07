@@ -1,2 +1,0 @@
-# TCPP-MalgotaArthur-Exam-MainProject
- 
